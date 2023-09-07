@@ -1,1 +1,1 @@
-Soy Aaron y me gusta el futbol y el wrestling
+Soy Aaron y me gusta el futbol , el wrestling y los comics

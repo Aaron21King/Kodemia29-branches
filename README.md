@@ -1,1 +1,1 @@
-Soy Aaron y me gusta el futbol , el wrestling y los comics
+Soy Aaron y me gusta el futbol , el wrestling y los comics, pero lo que mas me encanta es programar.
